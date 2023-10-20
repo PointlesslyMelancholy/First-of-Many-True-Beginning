@@ -116,7 +116,7 @@ and it doesn't confuse you as many things do. In the warmth and a blanket of ama
 Despite the endings, despite it all happening and none occuring all at once, you decide to be in the moment.
 You walk past all these endings that could've happened. Some good and some worse. However, all could be up in the air since all happened and none existed. A world that could be
 and can never be still happened yet here you are. Listening to the town, listening to the sirens blaring among the music of life all the while the sunset and oncoming bliss of the night
-is soon to guide you to view of the stars. Everything could be happening all at once, but here you are in the moment. The world is grim but the stars shine so brightly tonight
+is soon to guide you to view the stars. Everything could be happening all at once, but here you are in the moment. The world is grim but the stars shine so brightly tonight
 while the moon makes all the shadows dissipate into nothingness. Sleep comes for you and with a deep breath, with all sensation leaving your body, and everything around you becomes steady and warm.
 As you close your eyes in the middle of wherever safe is for you, you repeat to yourself, 'It's okay to be here, it's okay to live. I just want to live. Since I am enough.'
 ''')
